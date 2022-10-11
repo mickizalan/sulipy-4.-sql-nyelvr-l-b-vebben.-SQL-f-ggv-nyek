@@ -1,0 +1,1 @@
+# sulipy-4.-sql-nyelvr-l-b-vebben.-SQL-f-ggv-nyek
